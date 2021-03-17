@@ -9,3 +9,6 @@ xxluizxx47's skins.
 
 # [-[NekomataOkayu+FrostIceHD!]- xxluizxx47's PLOP edit](https://drive.google.com/file/d/14UabiKE88R9GJ-gd_439Zo2lPvMlTDu6/view?usp=sharing)
 ![](https://imgur.com/wJzuto0.png)
+
+# [- Nekomata Okayu -](https://drive.google.com/file/d/1KObwhzGE2v88GY1kiQxnfDaumSHs7ris/view)
+![](https://imgur.com/2kh01MK.png)
